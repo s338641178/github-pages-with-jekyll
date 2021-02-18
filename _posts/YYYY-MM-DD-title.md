@@ -1,5 +1,0 @@
---
-title: "My title"
-date: 21/02/18
---
-Today Im going to talk about the best places to travel after Covid because I think right now evevryone is a little tired of being stuck at home, so now you can plan for something exciting to do after covid.
